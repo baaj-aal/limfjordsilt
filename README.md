@@ -1,2 +1,0 @@
-# limfjordsilt
-iltindhold i Limfjorden
